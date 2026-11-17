@@ -1,7 +1,7 @@
 # soul-camp-letter
 
 Hi SOUL CAMP team,
-I'm Anastasya. I'm an operations specialist and project manager. Outside work I'm always editing photos and videos, playing with effects, and lately creating with AI. I'm at the very start, and I want to take it seriously.
+I'm Anastasiia. I'm an operations specialist and project manager. Outside work I'm always editing photos and videos, playing with effects, and lately creating with AI. I'm at the very start, and I want to take it seriously.
 I want three things from SOUL CAMP. To learn AI content creation for real, hands-on, from the team behind Soul. To learn from other creators, because a live example teaches me more than any tutorial. And to meet girls who create with AI, so we can build together during those 24 hours and after.
 There's also a more personal reason. I see the world in my own way and I want to keep it somewhere. AI lets me save my vision of the world in a digital cloud, not just in my head.
 I'm curious, I have an eye for style, and I finish what I start. Even in 24 hours.
